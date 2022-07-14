@@ -1,2 +1,4 @@
 # thay-doi-nhac-cho-zalo-tren-iphone
 Cách thay đổi nhạc chuông Zalo trên iPhone
+<p style="text-align: justify;"><a href="https://blogvn.org/cach-thay-doi-nhac-chuong-zalo-tren-iphone.html"><strong>Thay đổi nhạc chuông Zalo trên iPhone</strong></a> vô cùng dễ dàng nếu bạn thực hiện theo hướng dẫn sau. Cài đặt nhạc chuông Zalo theo ý thích giúp cuộc gọi đến của bạn trở nên độc đáo hơn bao giờ hết. Vì vậy thay vì để nhạc chuông quốc dân mặc định hãy cài cho mình bài hát hot trend, thịnh hành nhất nhé!</p>
+<p style="text-align: justify;">Nhiều khách hàng thường nghĩ có thể cài nhạc chuông ở trên cuộc gọi điện thoại mà thôi. Nhưng giờ đây, bạn đã có thể cài ngay cho ứng dụng gọi Zalo của mình. Cùng <a href="http://blogvn.org" target="_blank" rel="noopener">blogvn.org</a> theo dõi bài viết để biết cách thực hiện nào!</p>
